@@ -1,1 +1,1 @@
-# [https://swnoob.us.kg/](https://swnoob.us.kg/)
+# [https://skywars.noobtw.top/](https://skywars.noobtw.top/)
